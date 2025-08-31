@@ -1,0 +1,1 @@
+The Tenyidie (Angami) language is a Tibeto-Burman Language of Nagaland in the north-eastern part of India. Tenyidie is a low-resource language spoken by the Tenyimia Community and considered a major language in Nagaland. Tenyidie is a tonal, Subject-Object-Verb, and highly agglutinative language.
